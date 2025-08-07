@@ -1,1 +1,1 @@
-# rsschool-museum
+https://polinasoroko.github.io/rsschool-museum/
